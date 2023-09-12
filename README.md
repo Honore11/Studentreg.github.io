@@ -1,1 +1,0 @@
-# Studentreg.github.io
